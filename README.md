@@ -27,3 +27,5 @@ last one
 
 Only the chosen may step up to the BLENDER
 FOR THEY ARE THE ALLOTED CANDIDATES
+
+ze endo is ere
