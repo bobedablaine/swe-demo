@@ -24,3 +24,6 @@ will this blend?
 ###### subsubsubsubheading
 
 last one
+
+Only the chosen may step up to the BLENDER
+FOR THEY ARE THE ALLOTED CANDIDATES
